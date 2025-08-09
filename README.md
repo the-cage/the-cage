@@ -1,2 +1,2 @@
-hi look at my cool drawing on animal crossing
-![IMG_8669](https://github.com/user-attachments/assets/3e399fae-34da-4c01-9ca9-ef0b692c4f47)
+![IMG_8763](https://github.com/user-attachments/assets/cdf885c4-10ae-47bf-a048-9501e1e1a335)
+
